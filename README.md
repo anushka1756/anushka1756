@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @anushka1756
-- 👀 I’m interested in studg
+- 👀 I’m interested in study
 - 🌱 I’m currently learning  btech 2nd year 
 - 💞️ I’m looking to collaborate on github
 - 📫 How to reach me by linkdln id
